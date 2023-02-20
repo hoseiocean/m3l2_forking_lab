@@ -1,1 +1,1 @@
-Thomas Meta iOS developer
+Thomas Meta / iOS developer
